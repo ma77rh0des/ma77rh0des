@@ -1,4 +1,4 @@
-## Reflection Blog
+## Matt R
 
 As an accounting major with zero background of using or studying digital humanities projects, I came into the class not knowing what to expect. I even joined the class a week late after discovering I needed another writing intensive to graduate. Missing this first week meant I joined the class post discussions about defining digital humanities, and in doing so I was left to learn about it along the way. Googling the term's definition my first week left me unsatisfied and still with little understanding of what digital humanities were, especially the humanities part.
 
